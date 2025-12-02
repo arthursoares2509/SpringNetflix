@@ -1,2 +1,0 @@
-# Netfriquis
-Coming soon
